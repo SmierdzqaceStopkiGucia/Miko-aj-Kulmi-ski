@@ -1,1 +1,1 @@
-# Miko-aj-Kulmi-ski
+# Mikolaj-Kulminski
